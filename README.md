@@ -1,1 +1,8 @@
 # PracaLicencjackaPoObronie
+
+
+Autor Adam Lengenfeld  
+
+
+ ;) 
+ 
